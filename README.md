@@ -1,0 +1,1 @@
+# pajeobjectmodel_for_amazon
